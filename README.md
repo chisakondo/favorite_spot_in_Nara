@@ -41,3 +41,4 @@ I'm looking forward to your effort!
 - かしき屋 福茂千
 - 登美ヶ丘イオン
 - ルイジアナママ
+- オランダ屋
