@@ -42,3 +42,4 @@ I'm looking forward to your effort!
 - 登美ヶ丘イオン
 - ルイジアナママ
 - オランダ屋
+- 近鉄百貨店
