@@ -42,3 +42,5 @@ I'm looking forward to your effort!
 - 登美ヶ丘イオン
 - ルイジアナママ
 - オランダ屋
+- 県庁前
+- オランダ屋
