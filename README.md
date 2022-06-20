@@ -44,3 +44,4 @@ I'm looking forward to your effort!
 - オランダ屋
 - 県庁前
 - オランダ屋
+- Anytime Fitness club
